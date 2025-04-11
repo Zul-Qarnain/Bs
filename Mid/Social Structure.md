@@ -1,5 +1,3 @@
-Okay, here are the key points from your slides on Social Structure, Stratification, and Mobility, formatted for easy quiz preparation.
-
 **I. Social Structure: The Basics**
 
 *   **Definition:** How units (people, groups) in a society relate to each other. Includes institutions, norms, values, roles.
