@@ -1,5 +1,3 @@
-Okay, here are the key points from your Chittagong Division presentation, organized for easy quiz preparation.
-
 **I. Overview & Geography**
 
 *   **Name:** Chattogram Division (Official), Chittagong Division (Common)
