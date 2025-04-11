@@ -1,5 +1,3 @@
-Okay, here are the key points from your Mymensingh Division presentation, formatted for easy quiz memorisation:
-
 **I. Quick Facts & Overview**
 
 *   **Status:** One of the 8 administrative divisions of Bangladesh.
