@@ -1,5 +1,3 @@
-Okay, here are the key points from your Sylhet Division presentation, summarized for easy quiz preparation:
-
 **I. Overview & Nicknames**
 
 *   **Nickname:** "Land of two leaves and a bud." Also known as the land of 360 Awlias (saints), especially Hazrat Shah Jalal (RA).
