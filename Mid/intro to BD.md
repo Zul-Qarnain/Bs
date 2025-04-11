@@ -1,5 +1,3 @@
-Okay, here are the key points from your Bangladesh presentation, formatted for easy memorization for a quiz.
-
 **I. Introduction & Location**
 
 - **Official Name:** People’s Republic of Bangladesh
