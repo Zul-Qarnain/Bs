@@ -1,5 +1,3 @@
-Okay, here are the key points from your Dhaka Division presentation, formatted for easy memorization for a quiz.
-
 **I. Dhaka Division Overview**
 
 *   **Formation:** 1829
