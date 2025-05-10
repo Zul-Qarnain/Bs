@@ -131,5 +131,3 @@
 *   Formal excavation: Started 2000, by Jahangirnagar University Archaeology Dept.
 *   Believed to be "Sounagora," an ancient emporium mentioned by Ptolemy in *Geographia*.
 
-**Slide 20: References**
-*   Links to Banglapedia and MOFA.
